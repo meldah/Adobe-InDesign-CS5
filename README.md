@@ -1,0 +1,1 @@
+# Adobe-InDesign-CS5
